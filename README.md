@@ -1,2 +1,0 @@
-# riemstgrot
-woonpunt alcoholisten
